@@ -39,4 +39,10 @@ From Poplar Valley Road, turn right on Cottonwood.  The home will be on the left
 
 Thank you very much for your reservation! We are very happy that you are going to vacation in our beautiful part of the world.......your confirmation number for your reservation with us is:
 
-# 9646558.  Cott 121
+ 9646558  Cott 121
+
+ Graeagle CA 96103
+
+reservations@plumaspines.com
+
+530-836-0444
